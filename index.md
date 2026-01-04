@@ -1,5 +1,4 @@
 Privacy Policy
-
 Last updated: January 2026
 
 Timer Panel respects your privacy. This application is designed to function without collecting or sharing any personal information.
