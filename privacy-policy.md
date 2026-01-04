@@ -24,4 +24,4 @@ This privacy policy may be updated from time to time. Any changes will be reflec
 
 Contact Us:
 If you have any questions about this Privacy Policy, you may contact us at:
-kishoreplayroom@gmail.com
+kishoresreedharan1997@gmail.com
